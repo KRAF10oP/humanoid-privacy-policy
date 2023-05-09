@@ -1,5 +1,5 @@
-## **Humanoid's Privacy Policy**
-### By using humanoid you accept with its privacy policy.
+## **RoBuddy's Privacy Policy**
+### By using RoBuddy you accept with its privacy policy.
 
 ## 1. What does it store?
 
