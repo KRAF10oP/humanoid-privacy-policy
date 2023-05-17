@@ -1,5 +1,5 @@
-## **Proton's Privacy Policy**
-### By using Proton you accept with its privacy policy.
+## **Karuta's Privacy Policy**
+### By using Karuta you accept with its privacy policy.
 
 ## 1. What does it store?
 
