@@ -1,5 +1,5 @@
-## **Karuta's Privacy Policy**
-### By using Karuta you accept with its privacy policy.
+## **Quantum Privacy Policy**
+### By using Quantum you accept with its privacy policy.
 
 ## 1. What does it store?
 
