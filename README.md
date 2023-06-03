@@ -1,5 +1,5 @@
-## **Quantum Privacy Policy**
-### By using Quantum you accept with its privacy policy.
+## **Rolex's Privacy Policy**
+### By using Rolex you accept with its privacy policy.
 
 ## 1. What does it store?
 
